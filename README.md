@@ -1,9 +1,9 @@
-<img width="5000" height="3500" alt="transparent" src="https://github.com/user-attachments/assets/06180f81-a2a7-4afb-94d4-1ba255d232aa" />
+<img width="5000" height="3500" alt="testibannyfly" src="https://github.com/user-attachments/assets/aba50277-e9e0-4b55-a651-b439ac398936" />
 
 <div align="center">its me ghost ٩(๑´0`๑)۶
 </div>
 
 
-󠀠ㅤ󠀠ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ󠀠ㅤ󠀠ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ󠀠ㅤㅤㅤ[hi layla my bsf go follow her](https://github.com/roundy1x1x1x1)
-
-󠀠ㅤ󠀠ㅤㅤㅤㅤ ㅤ ㅤㅤ 󠀠ㅤ󠀠ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ󠀠ㅤ󠀠ㅤㅤㅤ☆
+<div align="center">follow my bffs!
+<div align="center">☆
+</div>
